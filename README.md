@@ -1,1 +1,0 @@
-# fgosivx.github.io
